@@ -1,2 +1,2 @@
 # Notes
-Just my notes
+Speeches held by Kai-Lung Hua.
